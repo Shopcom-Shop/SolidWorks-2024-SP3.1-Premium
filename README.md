@@ -1,12 +1,12 @@
 <img width="1600" height="1600" alt="SolidWorks 2024 SP3 1 Premium" src="https://github.com/user-attachments/assets/879e2f92-28b7-4e9d-88aa-29d7eeeb1500" />
 
-Torrent download link :
-
-https://www.shopcom.tn/product/solidworks-2024-sp3-1-premium/torrent-download
-
 Download link :
 
 https://www.shopcom.tn/product/solidworks-2024-sp3-1-premium/download
+
+Torrent download link :
+
+https://www.shopcom.tn/product/solidworks-2024-sp3-1-premium/torrent-download
 
 Purchase link :
 
